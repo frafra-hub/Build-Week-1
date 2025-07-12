@@ -1,0 +1,1 @@
+Leggere "Traccia esercizio.pdf"
